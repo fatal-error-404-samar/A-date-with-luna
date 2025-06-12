@@ -1,1 +1,1 @@
-it's so fucking time consuming.
+a dating sim, you may see some unexpected things🤤😜🤯
